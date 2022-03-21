@@ -1,1 +1,0 @@
-# mnrnyy.github.io
